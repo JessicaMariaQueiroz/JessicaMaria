@@ -12,5 +12,8 @@ Descrevi um prompt no site Seaart, um site IA gerador de fotos, e apliquei meu r
 ## 🚀 Resultados
 O resultado foi ótimo, porém, é bem melhor a ideia de um vídeo próprio pronto pois a imagem ainda não consegue trasmitir naturalidade e originalidade como o real. Mas foi a experiência curiosa que tive nesse momento e em próximo, vou realizar um novo avatar por meio de um vídeo dinâmico.
 
+## Link dos resultados:
+[www.linkedin.com/in/jéssica-maria-08a753336]
+
 ## 💭 Reflexão (Opcional)
 Estou amando cada experiência com a inteligÊncia artificial. Quero me tornar uma expertise nessa área, e estou aproveitando todas as oportunidades possíveis para aprender esses conteúdos. Ainda não aprendi como anexar vídeos ou conteudos nesta plataforma e, por enquanto, esta é que está sendo minha maior dificulade. Entender o GIt Hub 
